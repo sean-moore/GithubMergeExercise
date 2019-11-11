@@ -1,1 +1,1 @@
-My preferred email address is: john@daytum.io
+My preferred email address is: sean.moore@nblenergy.com
